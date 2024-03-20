@@ -19,3 +19,4 @@ yes didi ki do aur me bhi
 thanks for good 😊🥰🥰
 hello friends yygfgg
 kalo gg h na ba ba to t 
+I am a estudant and crypto currency 
